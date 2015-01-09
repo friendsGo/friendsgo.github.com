@@ -1,0 +1,2 @@
+# friendsgo.github.com
+asdadadad
